@@ -55,7 +55,7 @@ The covenant that God desired for Israel was for them to know that divine love h
 
 **For Reflection**: Before World War II, a woman was traveling through Georgia on her way to Moscow. She happened to meet an elderly woman living in a cottage. When the old woman learned that the traveler was headed for Moscow, she inquired, “Would you deliver a box of home- made toffee to my son?” Her son was Joseph Stalin. To the rest of the world, however, he was the dictator of Russia. But what others thought of him made no difference to his mother.
 
-`1. God’sloveislikethatofStalin’smother.Itdoesnotmatterhowbad we look in the eyes of others; God will continue to love us. Consider how this kind of love directs Him to offer us a covenant relationship.`
+`1. God’s love is like that of Stalin’s mother. It does not matter how bad we look in the eyes of others; God will continue to love us. Consider how this kind of love directs Him to offer us a covenant relationship.`
 
 `2. What role does our faith play when we understand that God takes the first step toward reconciliation? When we exercise our faith, how does God’s first step affect our everyday deeds and actions? Give an example of the dangers we face if we put works before faith.`
 
